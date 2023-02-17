@@ -26,5 +26,4 @@ The two PDFs will added to this repo and the other links archived on archive.is 
 17. https://web.archive.org/web/20091121080804/https://blog.okcupid.com/index.php/2009/11/17/your-looks-and-online-dating/
 
 
-
-
+![Original bibliography](https://github.com/inferno986return/WhyWomenDeserveLess-references/blob/main/Screenshot%202023-02-15%20164738.jpg)
