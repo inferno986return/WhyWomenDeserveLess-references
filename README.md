@@ -7,9 +7,9 @@ The two PDFs will added to this repo and the other links archived on archive.is 
 
 ## RESEARCH CITATIONS AND RESOURCES
 
-1. Provisional number of marriages and marriage rate: United States, 2000-2020, Center of Disease Control (available at: https://www.cdc.gov/nchs/data/dvs/national-marriage-divorce-rates-00-20.pdf)
-2. https://btlfamilylaw.com/divorce-statistics/
-3. https://www.thejimenezlawfirm.com/why-women-initiate-divorce-more-often-than-men/
+1. **Provisional number of marriages and marriage rate: United States, 2000-2020**, Center of Disease Control (available at: https://www.cdc.gov/nchs/data/dvs/national-marriage-divorce-rates-00-20.pdf)
+2. **Divorce Statistics (What is Your Risk of Divorce?)**, Burgraff Tash Levy PLC (available at: https://btlfamilylaw.com/divorce-statistics/, archive: https://archive.ph/xl6hX)
+3. **Why Women Initiate Divorce More Often Than Men**, Jimenez Law Firm (available at: https://www.thejimenezlawfirm.com/why-women-initiate-divorce-more-often-than-men/, archive: https://archive.ph/i8v32)
 4. https://www.inwinirwin.com/why-do-women-initiate-divorce-more-than-men/
 5. *The Book of Numbers*: Analyzing the ROI of the Pursuit of Women – https://amzn.to/3U2e|8A
 6. *The Book of Numbers*: Analyzing the ROI of the Pursuit of Women – https://amzn.to/3UZe|8A
